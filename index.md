@@ -15,7 +15,7 @@ Welcome To: The Termhax Official Website
         
         
         
-        Online Fan-Game Store                            Termite (Virtual Assistant)               Kahoot! Player (Maybe Coming Soon
+        Online Fan-Game Store                            Termite (Virtual Assistant)               Kahoot! Player (Maybe Coming Soon)      
 
 
 
